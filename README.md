@@ -1,1 +1,1 @@
-https://dl0dzzriynfaq.cloudfront.net
+https://d2yuxr4buzlhub.cloudfront.net
