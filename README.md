@@ -1,1 +1,1 @@
-https://d2yuxr4buzlhub.cloudfront.net
+https://d43ya55zwwlbs.cloudfront.net
