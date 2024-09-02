@@ -1,1 +1,1 @@
-https://d1o0onpqwdtfrd.cloudfront.net
+https://d648gj3lmd2vx.cloudfront.net
